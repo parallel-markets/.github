@@ -1,0 +1,1 @@
+![](https://parallelmarkets.com/assets/images/landing/graph.png)
